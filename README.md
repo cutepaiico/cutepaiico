@@ -7,3 +7,5 @@ thanks for visiting hope you're having a great day.
 
 - **dm me on [Twitter](https://twitter.com/avelialem)**
 - **emailme on @alianeliaavelia@gmai.com**
+
+see my other(s) media on [solo.to](https://solo.to/disboy)
